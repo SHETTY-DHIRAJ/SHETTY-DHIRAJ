@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **dhriajcse2022@gmail.com**
 
-- ⚡ Interesting Fact **One of the Early AI Explorer & Developers**
+- ⚡ Interesting Fact **One of the Early AI Explorer & Developer**
 
 <h3 align="left">Connect with me:</h3>
 
